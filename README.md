@@ -1,8 +1,8 @@
-# 🕸️ Spider-Man: Shattered Dimensions | Tradução PT-BR
+# 🕸️ Spider-Man: Edge of Time | Tradução PT-BR
 
 Fala, pessoal!
 
-Depois de todos esses anos desde o lançamento original, é com um orgulho imenso que venho compartilhar um projeto muito especial com vocês. Esse jogo sempre mereceu uma localização à altura, e agora finalmente chegou a hora de curtir a tradução completa de **Spider-Man: Shattered Dimensions** para Xbox 360 e PlayStation 3!
+Depois de todos esses anos desde o lançamento original, é com um orgulho imenso que venho compartilhar um projeto muito especial com vocês. Esse jogo sempre mereceu uma localização à altura, e agora finalmente chegou a hora de curtir a tradução completa de **Spider-Man: Edge of Time** para Xbox 360 e PlayStation 3!
 
 ## ⚠️ Avisos importantes sobre compatibilidade e testes
 
